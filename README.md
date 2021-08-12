@@ -1,14 +1,9 @@
-- 👋 Hi, I’m @hooman-jellyfish
+im a 🦑 jellyfish~ 
 
-
-- And im a 🦑 jellyfish~ 
-
-- I have other jellyfish friends- 
-
+I have other jellyfish friends- 
 
 
 :D 
-
 
 
 buh byee
